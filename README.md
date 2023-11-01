@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Thanh
-- 👀 My hobbies are coding and dancing
+- 👀 I honestly hate coding but I am trying my best for the money yk what I'm saying
 - 🌱 I'm currently trying to improve my coding skills
 - 💞️ I’m looking for any project that suits me
 <!---
